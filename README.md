@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Hafsah
+- 👀 I’m interested in c o d i n g 📺
+- 🌱 I’m currently learning in a school 
